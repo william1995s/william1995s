@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @william1995s
 - 👀 I’m interested in learning new skills of code.
-- 🌱 I’m currently learning new thiings @github.
+- 🌱 I’m currently learning new things @github.
 - 💞️ I’m looking to collaborate on any project..
 - 📫 How to reach me wh83931@gmail.com
 
